@@ -5,7 +5,7 @@
 
 
 
-[link direto](https://www.icloud.com/shortcuts/82d17226690b4a3cbb3abe0682caf4da>)
+[link direto](https://www.icloud.com/shortcuts/e7bc0f01e6d54cdfb4d4c055cdd66577)
 baixe e divirta-se !
 ___
 autor: <span style="color:red">_Paulocesar0073_</span>
